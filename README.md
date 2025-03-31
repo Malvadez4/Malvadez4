@@ -2,7 +2,7 @@
 
 -Meu nome é Vinícius Markovicz Souza🦎
 
--Tenho 15 anos🦍
+-Tenho 16 anos🦍
 
 -Trabalho na Expresso São Miguel🚚
 
@@ -10,7 +10,7 @@
 
 -Tenho um cachorro que se chama Aslan🐺
 
--Tenho mais de 40 mil troféus no Brawl Stars🍌
+-Tenho mais de 50 mil troféus no Brawl Stars🍌
 
 -Gosto do Neymar🖐😝🖐
 
